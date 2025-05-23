@@ -77,3 +77,35 @@ o con ingredienes al gusto.
 
 - 2 huevos grandes
 
+### Elaboración: 
+
+#### Sofrito
+
+- Ponemos un buen chorro de aceite en la olla o en la sartén y dos o tres cucharadas de mantequilla, en función de la cantidad que vaya a hacer de croquetas. Dejamos a fuego suave para que se vaya fundiendo.
+
+- Pelamos y picamos en trozos muy pequeñitos la cebolla y la incorporamos durante 10 minutos aproximadamente a fuego medio removiendo muy bien para que no se pegue.
+
+- Ponemos unas lonchas de jamón (la cantidad que queramos: 4 o 5) en el microondas, unos minutos que es más rápido, o se sofríe en una sartén y después pasamos a picar en trocitos.
+
+- Una vez que la cebolla está pochada añadimos la nuez moscada y la pimienta y una pizca de sal removemos e incorporamos varias cucharadas de harina. Poco a poco, inicialmente hasta ver cómo se funde con el sofrito Debe quedar bien integrada.
+En el caso de que se quede un poco aceitosa, puedes añadir un poquito más de harina.
+
+- Debe quedar una "masa" espesa
+
+- Ahora vamos a incorporar la leche templada (siempre mejor que fría) poquito a poco y removiendo... vamos añadiendo más leche, volvemos a remover hasta que se integre bien y añadimos más leche, y así sucesivamente sin pasarnos de leche para que no quede demasiado líquido.
+
+- Tiene que quedar cremosa tipo papilla y teniendo en cuenta que después va a espesar.
+
+- En este momento, es opcional, si quieres puedes ponerle un poquito de cúrcuma para darle color, si no no hay ningún problema.
+
+- Una vez que la bechamel haya espesado, incorporamos los trocitos de jamón que habíamos reservado.
+
+#### Manipulación de la masa
+
+- Ponemos en una fuente y cuando esté casi fría ya podemos tapar y dejar en la nevera para que quede lo más espesa posible.
+
+- Dejamos reposar en la nevera, idealmente un día, y después ya se pueden montar nuestras croquetas.
+
+- Pasamos por huevo batido y después por pan rallado.
+
+- Y por último podemos freírlas en abundante aceite o podemos reservarlas en el congelador.
