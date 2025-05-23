@@ -49,3 +49,31 @@ o con ingredienes al gusto.
 - Podemos acompañar estas crêpes dulces expolvoreando azúcar glass y gratinarlas para que se glaseen, flambeadas con algún licor, como Grand Marnier o coñac
 
 - espolvorear con azúcar glass y gratinarlas para que se glaseen, flambeadas con algún licor, como Grand Marnier o coñac. rellenarlas de mermelada, fruta fresca, nata, chocolate, todo lo que se te ocurra (siempre y cuando sea dulce).
+
+
+## Receta de corquetas de jamón
+
+### Ingredientes
+
+- 150g de harina
+
+- 1 litro de leche entera
+
+- Un chorro de aceite de oliva
+
+- 2-3 cucharadas de mantequilla
+
+- Una pizca de nuez moscada (al gusto)
+
+- Una pizca de pimienta (al gusto)
+
+- una pizca de sal (al gusto)
+
+- 250g de jamón serrano
+
+- Media cebola dulce
+
+- Pan rallado
+
+- 2 huevos grandes
+
