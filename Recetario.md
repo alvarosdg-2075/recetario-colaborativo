@@ -57,3 +57,19 @@ El objetivo del proyecto es crear un tutorial de recetas de cocina
 - 1 chorro de aceite de oliva 
 - sal y pimienta al gusto
 
+
+#### Instrucciones
+
+#### 1. Carne
+- Colocar la carne en una olla con agua y sal
+- cocer durante 90 a 120 minutos hasta que esté tierna 
+- desmenuzar la carne con tenedor
+#### 2. Preparar el sofrito 
+- En una sartén grande, freir la cebolla, los pimientos y el ajo hasta que estén blandos
+- añadir comino, orégano y laurel
+#### 3. Cocinar
+- Agregar la carne triturada al sofrito
+- Vertir el vino blanco y dejar que se evapore el alcohol
+- Añadir el tomate y un poco del caldo
+- Cocinar a fuego lento durante 20-25 minutos, removiendo ocasionalmente
+- Echa de nuevo sal y pimienta. Y ya estará listo
