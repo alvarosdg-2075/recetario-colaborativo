@@ -73,6 +73,8 @@ El objetivo del proyecto es crear un tutorial de recetas de cocina
 - Echa de nuevo sal y pimienta. Y ya estará listo
 
 
+=======
+
 ## Recetas Ithan
 
 ## Receta para crêpes dulces caseros
@@ -182,3 +184,28 @@ En el caso de que se quede un poco aceitosa, puedes añadir un poquito más de h
 - Pasamos por huevo batido y después por pan rallado.
 
 - Y por último podemos freírlas en abundante aceite o podemos reservarlas en el congelador.
+
+## Receta colaborativa
+
+### Pasta con Gambas al ajillo y Limón
+
+#### Ingredientes: 
+- 200g de pasta
+- 150g de gambas peladas 
+- 3 dientes de ajo picados
+- 1 guindilla pequeña
+- zumo de limón
+- 3 cucharadas de aceite de oliva virgen extra
+- un puñado de perejil picado
+- sal y pimienta
+- opcional un chorro de vino blanco
+
+#### Preparación: 
+1. Cocinar la pasta y reservar un poco de agua de la cocción
+2. Sofreir el ajo y guindilla en una sartén grande, hasta que el ajo esté dorado
+3. Subir el fuego y añadir las gambas. Echar sal y pimienta, y cocinar durante 2-3 minutos hasta que se doren. Puedes introducir vino y dejar que se evapore
+4. Incorporar la pasta a la sartén, mezclar bien y agregar el agua de cocción previamente guardada
+5. Terminar con limón y perejil, añadir fuera del fuego
+
+#### Consejo: 
+- Servir en pñato hondo con una copa de vino blanco de acompañamiento
