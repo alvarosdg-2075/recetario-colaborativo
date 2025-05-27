@@ -41,3 +41,19 @@ El objetivo del proyecto es crear un tutorial de recetas de cocina
 - Nada más sacarlo del horno, vierte el almíbar caliente sobre el baklava 
 - Deja reposar durante 6 horas y ya estará listo
 
+## Receta Para Ropa vieja cubana
+
+#### Ingredientes Ropa vieja: 
+
+- 600 gramos de falda de res
+- 1 cebolla grande 
+- 2 pimientos (rojo y verde)
+- 3 dientes de ajo
+- 400 gramos de tomate triturado 
+- 100 ml de Vino blanco 
+- 1 hoja de laurel 
+- 1 cucharada de comino molido 
+- 1 cucharada de orégano
+- 1 chorro de aceite de oliva 
+- sal y pimienta al gusto
+
